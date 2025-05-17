@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @avawang2024
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me ...
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: 
